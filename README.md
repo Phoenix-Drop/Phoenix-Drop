@@ -1,1 +1,1 @@
-![image](https://tenor.com/en-GB/view/serial-experiments-lain-lain-stare-into-the-abyss-y2k-2000s-gif-24846261.gif)
+![image](https://i.pinimg.com/1200x/d4/ce/10/d4ce10f9078aa34c634ddf6d1e1cfcac.jpg)
